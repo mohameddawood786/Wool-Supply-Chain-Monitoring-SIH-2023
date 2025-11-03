@@ -148,7 +148,7 @@ This innovation aims to **bridge traditional craftsmanship with modern digital i
 ## 👤 Contact
 
 **Created by:** Mohamed Dawood  
-🔗 [LinkedIn Profile](https://www.linkedin.com/in/your-link-here)  
+🔗 [LinkedIn Profile](https://www.linkedin.com/in/mohamed-dawood-m-a679b42a5/)  
 📧 Reach out for collaborations and innovation discussions!  
 
 ---
